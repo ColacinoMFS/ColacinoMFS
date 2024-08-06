@@ -11,4 +11,4 @@
 
 Qualquer dúvida entre em contato
 <a href="matheus.colacino@escola.pr.gov.br"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white&quot;/></a>
-![](https://media1.tenor.com/m/Z8rzBlr6KRsAAAAd/dark-souls.gif)
+![](https://media1.tenor.com/m/dczXz3Fia9wAAAAC/dark-souls-nope.gif)
